@@ -17,26 +17,34 @@ We're interested in renewable energy, sustainable transportation, clean water & 
 
 ## How we do it
 
-– Think big and be naive
+– Think big and be naive –
+
 Wild ideas that stretches our abilities are encouraged.
 
-Feel trusted
+– Feel trusted –
+
 Time spent is 100% self directed. There's no hierarchy.
 
-Do stuff that matters
+– Do stuff that matters –
+
 Work on big problems that pushes us and humanity forward.
 
-Stay hungry
+– Stay hungry –
+
 Keep learning and be humble.
 
-Reap the harvest
+– Reap the harvest –
+
 Profit is split equally between everyone.
 
-Find balance 
+– Find balance –
+
 You decide how many hours you want to work.
 
-No egos
+– No egos –
+
 Shared ownership of ideas. Make others successful.
 
-Feel great
+– Feel great –
+
 Have fun while saving the world
